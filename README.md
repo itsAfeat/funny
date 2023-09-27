@@ -1,2 +1,1 @@
-# funny
 # Funny shit
